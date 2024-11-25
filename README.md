@@ -5,7 +5,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on **Android and Web Projects**
 - 🌱 I’m currently learning **Computer Network**
 - 💬 Ask me about **Girl**
-- 📫 How to reach me: **kevinardanijob@gmail.com**
+- 📫 How to reach me: ****
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love exploring everything related to technology. When I was
 
