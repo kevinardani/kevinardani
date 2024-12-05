@@ -6,7 +6,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning **Computer Network**
 - 💬 Ask me about **Girl**
 - 📫 How to reach me: ****
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: He/Him Hehehboy
 - ⚡ Fun fact: I love exploring everything related to technology. When I was
 
 ## 🌐 Socials:
